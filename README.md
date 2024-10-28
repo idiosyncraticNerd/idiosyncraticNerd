@@ -6,7 +6,7 @@ rizz
 <p align="center">
 RAY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎*** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ c+h is fine !
 <p align="center">
-usually in the hoyo or roblox area :3
+usually in the hoyo or roblox area. or just a random spot :3
 <p align="center">
 if you skin is from a media that makes me uncomfortable (ex: hazbin hotel, tcoaal) YOU WILL BE HIDDEN!
   .
