@@ -6,7 +6,7 @@ rizz
 <p align="center">
 RAY‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎*** ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ c+h is fine !
 <p align="center">
-usually in the hoyo or roblox area. or just a random spot :3
+i am everywhere on ponytown i dont have a set spot i will find you
 <p align="center">
 if you skin is from a media that makes me uncomfortable (ex: hazbin hotel, tcoaal) YOU WILL BE HIDDEN!
   .
