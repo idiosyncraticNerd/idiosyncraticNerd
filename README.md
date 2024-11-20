@@ -12,7 +12,7 @@ $\text{\color{#cd1018}go 2}$ [strawpage](https://tanesobs.straw.page/) $\text{\c
 
 <h3>$\text{\color{#cd1018}BYI}$
 
-i try not to be try but i usually am,,, srry.
+i try not to be dry but i usually am,,, srry. i am also dyslexic so my sentences may be confusing at times
 
 $\text{\color{#cd1018}꒰:}$ $\text{\color{#583fa8}Online}$ $\text{\color{#cd1018}-}$ $\text{\color{#583fa8}Usally for when I'm laying with friends,, feel free to talk me still though !!}$
 
