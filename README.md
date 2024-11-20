@@ -16,7 +16,7 @@ i try not to be dry but i usually am,,, srry. i am also dyslexic so my sentences
 
 <h3>$\text{\color{#cd1018}BYI}$
 
-$\text{\color{#cd1018}꒰:}$ $\text{\color{#583fa8}Online}$ $\text{\color{#cd1018}-}$ $\text{\color{#583fa8}Usally for when I'm actively playing with friends,, feel free to talk me still though !!}$
+$\text{\color{#cd1018}꒰:}$ $\text{\color{#583fa8}Online}$ $\text{\color{#cd1018}-}$ $\text{\color{#583fa8}usually for when I'm actively playing with friends,, feel free to talk me still though !!}$
 
 $\text{\color{#cd1018}꒰:}$ $\text{\color{#583fa8}Away}$ $\text{\color{#cd1018}-}$ $\text{\color{#583fa8}probably afk or offtab!! i use this and busy interchangeably !!}$
 
