@@ -28,7 +28,7 @@ $\text{\color{#cd1018}꒰:}$ $\text{\color{#583fa8}Looking 4 Roleplay}$ $\text{\
 
 $\text{\color{#cd1018}-------}$
 
-i am in radiance force (RF) if u are too follow me or something,,,
+i am in radiance force and vll follow me if youre in those too BROTHER
 
 $\text{\color{#cd1018}-------}$
 
