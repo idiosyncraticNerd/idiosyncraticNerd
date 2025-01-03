@@ -11,8 +11,9 @@
 
 <p align="center">
 <h3>$\text{\color{#d71500}BEFORE YOU INTERACT !}$ </h3>
-</p>
+</p> 
 
-![](https://files.catbox.moe/z36dwb.png) 
+i dont feel like writing this 
+![](https://files.catbox.moe/ta88pe.gif) ![](https://files.catbox.moe/z36dwb.png) 
 
 ![](https://files.catbox.moe/jk95sw.gif)
