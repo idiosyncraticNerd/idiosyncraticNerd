@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=idiosyncraticNerd) 
 
-rentry link placeholder pixel div placeholder strawpg link placeholder
+rentry link placeholder ![](https://files.catbox.moe/xpr1yj.png) strawpg link placeholder
 
 ![](https://files.catbox.moe/4wln0d.png)
 
