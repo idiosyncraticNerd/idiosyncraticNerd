@@ -4,7 +4,7 @@
 
 rentry link placeholder pixel div placeholder strawpg link placeholder
 
-border placeholder
+![](https://files.catbox.moe/4wln0d.png)
 
 graphic placeholder
 
