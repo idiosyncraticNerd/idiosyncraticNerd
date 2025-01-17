@@ -2,10 +2,12 @@
 
 ![](https://komarev.com/ghpvc/?username=idiosyncraticNerd) 
 
-![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)
+rentry link placeholder pixel div placeholder strawpg link placeholder
+
+border placeholder
 
 graphic placeholder
 
-![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)![](https://files.catbox.moe/hrvqkm.png)
+border placeholder
 
 ![](https://files.catbox.moe/sfbfpe.png)
