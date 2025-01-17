@@ -13,3 +13,5 @@ graphic placeholder
 dni pplaceholder
 
 ![](https://files.catbox.moe/sfbfpe.png)
+
+art credits in wip
