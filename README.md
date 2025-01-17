@@ -10,4 +10,6 @@ graphic placeholder
 
 border placeholder
 
+dni pplaceholder
+
 ![](https://files.catbox.moe/sfbfpe.png)
