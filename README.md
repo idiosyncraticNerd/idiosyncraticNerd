@@ -7,7 +7,7 @@
 
 ![](https://files.catbox.moe/4wln0d.png)
 
-graphic placeholder
+![](https://files.catbox.moe/uht3ke.png)
 
 ![](https://files.catbox.moe/4wln0d.png)
 
