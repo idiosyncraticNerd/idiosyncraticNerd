@@ -18,4 +18,6 @@
 
 ![](https://files.catbox.moe/sfbfpe.png)
 
-$\text{\color{#ff0a45}art credits in wip}$
+$\text{\color{#ff7dff}art creds: blu-s0da + shy-the-trash-lion + deductivisms}$
+$\text{\color{#ff7dff} + licencedfool + artist-squared + quitlebee + asuuree}$
+$\text{\color{#ff7dff} + cirquecarte + take-oekaki}$
