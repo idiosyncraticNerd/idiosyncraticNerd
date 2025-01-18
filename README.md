@@ -18,4 +18,4 @@
 
 ![](https://files.catbox.moe/sfbfpe.png)
 
-art credits in wip
+$\text{\color{#ff0a45}art credits in wip}$
