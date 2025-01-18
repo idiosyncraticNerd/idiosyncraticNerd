@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=idiosyncraticNerd) 
 
-rentry link placeholder ![](https://files.catbox.moe/xpr1yj.png) strawpg link placeholder
+![https://rentry.co/theactualnerdemoji](https://files.catbox.moe/9lecrx.png) ![](https://files.catbox.moe/xpr1yj.png) strawpg link placeholder
 
 ![](https://files.catbox.moe/4wln0d.png)
 
