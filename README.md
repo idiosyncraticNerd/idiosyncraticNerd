@@ -7,7 +7,7 @@
 
 ![](https://files.catbox.moe/4wln0d.png)
 
-![](https://files.catbox.moe/p55ka9.webp)
+![](https://files.catbox.moe/rl87dz.png)
 
 ![](https://files.catbox.moe/4wln0d.png)
 
