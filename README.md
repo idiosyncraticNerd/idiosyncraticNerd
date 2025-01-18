@@ -11,7 +11,7 @@ graphic placeholder
 
 ![](https://files.catbox.moe/4wln0d.png)
 
-dni pplaceholder
+![image](https://files.catbox.moe/7nanlw.png)
 
 ![](https://files.catbox.moe/sfbfpe.png)
 
