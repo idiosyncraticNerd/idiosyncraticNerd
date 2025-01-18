@@ -7,7 +7,7 @@
 
 ![](https://files.catbox.moe/4wln0d.png)
 
-![](https://files.catbox.moe/uht3ke.png)
+GRAPHIC PLACEHOLDER
 
 ![](https://files.catbox.moe/4wln0d.png)
 
